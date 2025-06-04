@@ -1,8 +1,11 @@
+## HousePlus Group Factory
+
+
 https://wa.me/c/8615578119543
 
 HousePlus Group Factory
 
-House Plus Group Factory
+## Contact House Plus Group Factory
 
 Attn: Jack
 
@@ -15,7 +18,7 @@ Website: https://www.houseplus-ch.com
 https://wa.me/c/8615578119543
 
 
-Chinese HousePlus Group Factory--Professional Household Appliances & Solar Products & 3C Goods Manufacturer.
+## Chinese HousePlus Group Factory--Professional Household Appliances & Solar Products & 3C Goods Manufacturer
 
 
 
@@ -29,21 +32,21 @@ Manufactured and Supplied By Professional Chinese HousePlus Factory
 
 
 
-HousePlus Solar Series Products:
+## HousePlus Solar Series Products:
 
 Solar panels, inverters, lithium batteries, lead acid batteries, charge controllers, solar street lights, solar fans,solar home appliances.
 
 
 
 
-HousePlus Household Appliances:
+## HousePlus Household Appliances:
 
 Home Appliances, Kitchen Appliances, Household Appliances, Electric Appliances,Cooking Appliances, Air Fryer and  so on.
 
 
 
 
-HousePlus 3C Goods:
+## HousePlus 3C Goods:
 
 SD Card/Memory Card,Memory Bank,SSD,Bluetooth Earphone,USB Cable,Earphone,Smart Watch,Power Bank,Solar Power Bank,Solar Power Bank,Phone Case,Charger, Headphone,Portable Speaker
 
