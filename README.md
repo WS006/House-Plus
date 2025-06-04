@@ -65,10 +65,10 @@ SD Card/Memory Card,Memory Bank,SSD,Bluetooth Earphone,USB Cable,Earphone,Smart 
 
 #HOUSEPLUS,#HOUSE PLUS,#House Plus Factory,#HomeAppliance, #KitchenAppliance, #HouseholdAppliance, #ElectricAppliance,#CookingAppliance,#Houseplus,#Houseplusfactory,#houseplusgroup,#houseplusgroupfactory,#Solarpanel, #inverter, #lithiumbattery, #batterystorage,#battery,#batterypack, #leadacidbatteries,#ESS,#LiFePO4,#chargecontroller,#solarpanel #solarstreetlight,#solarfan,#,#houseplusltd #housepluscompany #houseplusfactory #solar #solarsystem #solarenergy,#SOLAR, #3C Goods
 
-![HousePlus Factory House Plus](https://github.com/user-attachments/assets/06501e90-3f6c-45f1-8a11-b38e8e743c3d)
 
 
   ## Copyright © 2025 HousePlus Group Factory
+  ![HousePlus Factory House Plus](https://github.com/WS006/House-Plus-Group-Factory/blob/main/HOUSEPLUS%20IMAGE/Factory%20House%20Plus.png)
   
 
 
