@@ -68,8 +68,7 @@ SD Card/Memory Card,Memory Bank,SSD,Bluetooth Earphone,USB Cable,Earphone,Smart 
 ![HousePlus Factory House Plus](https://github.com/user-attachments/assets/06501e90-3f6c-45f1-8a11-b38e8e743c3d)
 
 
-
-
-                                                   ## Copyright © 2025 HousePlus Group Factory
+  ## Copyright © 2025 HousePlus Group Factory
+  
 
 
