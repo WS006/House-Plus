@@ -35,7 +35,7 @@ Manufactured and Supplied By Professional Chinese HousePlus Factory
 
 ## HousePlus Solar Series Products:
 
-Solar panels, inverters, lithium batteries, lead acid batteries, charge controllers, solar street lights, solar fans,solar home appliances.
+Inverter,Power Inverter With  Battery Charger,UPS/Solar Power Station,Solar Lithium Battery,Solar Controller-MPPT,Solar Charge Controller-PWM,Portable Solar Panel,Solar Panel,Foldable Solar Panel
 ![House Plus Group Factory Series Goods HousePlus Factory](https://github.com/user-attachments/assets/6e1561b6-01e3-4f4f-be5b-662e36d48934)
 
 
@@ -44,7 +44,7 @@ Solar panels, inverters, lithium batteries, lead acid batteries, charge controll
 
 ## HousePlus Household Appliances:
 
-Home Appliances, Kitchen Appliances, Household Appliances, Electric Appliances,Cooking Appliances, Air Fryer and  so on.
+Home Appliances, Kitchen Appliances, Household Appliances, Electric Appliances,Cooking Appliances,Induction cooker,infrared cooker,3in 1 Breakfast Maker,Electric pressure cooker,Electric cooker,Solar lamp,Solar lamp with Panel,Outdoor power supply,Gas stove,Outdoor gas stove,Electric juice machine,Solar fan light,Portal Solar light,Solar light,rechargeable flashlight,stand fan/floor fan,Solar Floor Fan
 ![House Plus Group Factory Series Goods HousePlus (1)2 - 副本](https://github.com/user-attachments/assets/7856f02d-3ecd-43b0-af64-93dedf0aa21e)
 
 
@@ -53,7 +53,12 @@ Home Appliances, Kitchen Appliances, Household Appliances, Electric Appliances,C
 ## HousePlus 3C Goods:
 
 SD Card/Memory Card,Memory Bank,SSD,Bluetooth Earphone,USB Cable,Earphone,Smart Watch,Power Bank,Solar Power Bank,Solar Power Bank,Phone Case,Charger, Headphone,Portable Speaker
-![HOUSE PLUS 3C GOODS](https://github.com/user-attachments/assets/66075907-f0be-4d96-8141-707f707123c0)
+![HOUSEPLUS 3C GOODS (5)](https://github.com/user-attachments/assets/47d48ca8-9719-43d6-b92f-cecaa6636b11)
+![HOUSEPLUS 3C GOODS (4)](https://github.com/user-attachments/assets/344283c0-3efb-44ef-aee6-5539a9da0408)
+![HOUSEPLUS 3C GOODS (3)](https://github.com/user-attachments/assets/8797d755-1ee5-414f-b802-bbb541891f64)
+![HOUSEPLUS 3C GOODS (2)](https://github.com/user-attachments/assets/25240b72-fd92-487a-95fe-3e36c4202cd1)
+![HOUSEPLUS 3C GOODS (1)](https://github.com/user-attachments/assets/89e4280c-27a6-4a37-a740-d08914869cc0)
+
 
 
 
