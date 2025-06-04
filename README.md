@@ -1,7 +1,7 @@
 ## HousePlus Group Factory
 
 
-https://wa.me/c/8615578119543
+[https://wa.me/c/8615578119543](https://wa.me/c/8615578119543)
 
 HousePlus Group Factory
 
@@ -15,7 +15,7 @@ Phone/WhatsApp:+86 15578119543
 
 Website: https://www.houseplus-ch.com
 
-https://wa.me/c/8615578119543
+WhatsApp: [https://wa.me/c/8615578119543](https://wa.me/c/8615578119543)
 
 
 ## Chinese HousePlus Group Factory--Professional Household Appliances & Solar Products & 3C Goods Manufacturer
