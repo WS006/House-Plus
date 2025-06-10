@@ -105,7 +105,8 @@ alt="HOUSEPLUS GROUP FACTORY"
 alt="HOUSE PLUS GROUP FACTORY"  
 alt="HOUSEPLUS GROUP COMPANY"  
 
-  ## Copyright © 2025 HousePlus Group Factory
+
+## Copyright © 2025 HousePlus Group Factory
 
   
 
