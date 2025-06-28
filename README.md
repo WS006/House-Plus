@@ -111,13 +111,7 @@ alt="SolarHomeAppliances"
 alt="3C Goods"  
 alt="Wireless Earphone Speaker"  
 alt="Headphone Earphone TWS Speaker"  
-alt="HousePlus Group Limited"  
-alt="HousePlus Group LTD Limited"  
-alt="HousePlus Group COMPANY"  
-alt="HousePlus Group Factory"  
-alt="HOUSEPLUS GROUP FACTORY"  
-alt="HOUSE PLUS GROUP FACTORY"  
-alt="HOUSEPLUS GROUP COMPANY"  
+HousePlus Group Limited/HousePlus Group LTD Limited/HousePlus Group COMPANY/HousePlus Group Factory"  HOUSEPLUS GROUP FACTORY HOUSE PLUS GROUP FACTORY/HOUSEPLUS GROUP COMPANY"  
 
 
 ## Copyright © 2025 HousePlus Group Factory
