@@ -114,7 +114,7 @@ alt="Headphone Earphone TWS Speaker"
 HousePlus Group Limited/HousePlus Group LTD Limited/HousePlus Group COMPANY/HousePlus Group Factory"  HOUSEPLUS GROUP FACTORY HOUSE PLUS GROUP FACTORY/HOUSEPLUS GROUP COMPANY"  
 
 
-## Copyright © 2025 HousePlus Group Factory
+                                                    ## Copyright © 2025 House Plus Group Factory
 
   
 
