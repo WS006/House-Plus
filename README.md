@@ -27,7 +27,7 @@ WhatsApp: [https://wa.me/c/8615578119543](https://wa.me/c/8615578119543)
 One-Stop Solar Products & Household Appliances & 3C Goods Solution Provider--House Plus Group Factory House Plus Factory
 
 
-#House Plus#HousePlus Factory#HousePlus Group Factory#House Plus#HousePlus Solar Products#HousePlus Household Appliances
+#House Plus#HousePlus Factory#HousePlus Group Factory#House Plus#HousePlus Solar Products#HousePlus Household Appliances#House Plus Group Factory#House Plus
 
 
 HousePlus Nigeria
